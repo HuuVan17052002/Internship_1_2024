@@ -1,1 +1,2 @@
 # Internship_1_2024
+![z5049938566108_d486239c4f02b6d361609a8294280348](https://github.com/HuuVan17052002/Internship_1_2024/assets/161009620/e5ed65c8-03bb-4e4a-a715-d7eefe8b6d59)
